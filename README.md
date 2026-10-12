@@ -1,5 +1,5 @@
 # Min Wang, Ph.D.
-Associate Professor of Management Science and Statistics
+Professor of Statistics
 Ph.D. Advisor
 
 # Recent Publications
